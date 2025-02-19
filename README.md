@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @moinmhd
+- 👋 Hi, I’m @moin
 - 👀 I’m interested in travelling
 - 🌱 I’m currently learning sourcing
 - 💞️ I’m looking to collaborate on recrutiment and sales
