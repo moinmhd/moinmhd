@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @moinmhd
 - 👀 I’m interested in travelling
 - 🌱 I’m currently learning sourcing
-- 💞️ I’m looking to collaborate on recrutiment
+- 💞️ I’m looking to collaborate on recrutiment and sales
 - 📫 How to reach me mohammed.moin@recro.io
 
 <!---
